@@ -128,25 +128,24 @@ INSIGHT & RECOMMENDATION TO ACHIEVE THE OBJECTIVE
 1. To Increase the number of donors in the database  to over 1000 donors that was recoreded in the database, I would recommend the charity have a
 fundraising event, and make the vision and mission, past and current projects, and achievements known to all donors. These would provide the company with an opportunity to meet potential donors.
 
-![image](https://github.com/Adebisiokegbemi/Education-For-All/assets/91023196/de5f302b-4ad8-4cdc-82da-cbd6de38ad95) ![image]
 
 (https://github.com/Adebisiokegbemi/Education-For-All/assets/91023196/3b87b46c-0a53-456f-9996-27a6b674c28e)
 
 
 
-3. To increase the donation frequency of the donors, I would recommend the company work on the communication channel with all donors, have quarterly meeting and engage some key donors to be part of the fundraising and execution committe. This would give the fundraising committee more insight on how the fund generated is being managed and how much more funds is needed to the keep charity up and running, whilst birthing regular donations.
+3. To increase the donation frequency of the donors, I would recommend the company work on the communication channel with all donors, have quarterly meeting and engage some key donors to be part of the fundraising and execution committees. This would give the donors more insight on how the funds generated is being managed and how much more funds is needed to the keep charity up and running, whilst birthing regular donations.
 
    
 ![image](https://github.com/Adebisiokegbemi/Education-For-All/assets/91023196/d192774d-e582-4e48-8bcb-e9aef5f779d6)
 
 ![image](https://github.com/Adebisiokegbemi/Education-For-All/assets/91023196/fc809769-732b-4170-a76e-fd7d936665a6)
 
-![image](https://github.com/Adebisiokegbemi/Education-For-All/assets/91023196/6eebbcb9-37e0-467e-89a4-c1e30760d49d
+
 
 
 
 4.  To increase the value of the donations, I would recommend the company welcome donations of gifts and valuables that can be converted to cash or can be useful to the beneficiaries.
-Also, I would suggest we have an annual special recognition award for the top and most frequent fundraisers.
+Also, I would suggest the company have an annual special recognition award for the top and most frequent fundraisers.
 
 ![image](https://github.com/Adebisiokegbemi/Education-For-All/assets/91023196/11465dbf-a47c-42d5-a902-35f9201a9b4b)
 
